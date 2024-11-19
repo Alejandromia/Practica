@@ -1,1 +1,1 @@
-# Practica
+Alejandro Guaman Zu¤iga
